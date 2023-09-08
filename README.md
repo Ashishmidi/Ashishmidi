@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Ashishmodi
 - 👀 I’m interested in web designing and software development 
 - 🌱 I’m currently learning web development HTML CSS JS 
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 8770052149 OR jmodi031@gmail.com
